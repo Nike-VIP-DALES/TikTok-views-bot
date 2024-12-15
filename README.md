@@ -14,7 +14,7 @@ TikTok Views Generator 全新、快速且易于使用
 
 - 最新版本
 
-- # 联系电报：https://t.me/Nike1USA
+- 联系电报：https://t.me/Nike1USA
 
 - 电报频道：https://t.me/githubtooul
 
@@ -24,7 +24,7 @@ TikTok Views Generator 全新、快速且易于使用
 
 - последняя версия
 
-- # контакт в Telegram: https://t.me/Nike1USA
+- контакт в Telegram: https://t.me/Nike1USA
 
 - канал Telegram: https://t.me/githubtooul
 
@@ -34,6 +34,6 @@ TikTok ビュー ジェネレーター 新しく、高速で使いやすい
 
 - 最新バージョン
 
-- # テレグラムへのお問い合わせ: https://t.me/Nike1USA
+-  テレグラムへのお問い合わせ: https://t.me/Nike1USA
 
 - テレグラム チャネル: https://t.me/githubtooul
